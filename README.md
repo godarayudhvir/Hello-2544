@@ -6,4 +6,5 @@ Start here, to get all the information you need to get started with Cyber Allian
 
 ## Reach out to me:
 ![Discord Activity](https://discord.c99.nl/widget/theme-3/285798166446735370.png)
-Join here : https://discord.com/invite/2ZJAp3qK
+
+Join here : https://dicord.gg/EeetPXaHGX
